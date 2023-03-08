@@ -4,6 +4,4 @@
 
 
 
-If you appreciated this, feel free to follow me or donate!
 
-ETH Address: 0xxxxxxxxxxxxxxxxxxxxxxxxx
